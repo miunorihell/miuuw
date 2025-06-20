@@ -1,4 +1,5 @@
-![gif](https://github.com/user-attachments/assets/517fac3a-9541-4d5c-a15f-2274b460f03e)
+![image](https://github.com/user-attachments/assets/7ce78390-471d-4e7b-ab32-9b29082d7099)
+
 
 
 # miuuw
